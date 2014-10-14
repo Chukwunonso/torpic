@@ -1,0 +1,1 @@
+Proxy Ecommerce Platform is an enabling platform upon which a buyer (all ecommerce especially but not limited to retail) transacts internationally with countries where restrictions apply on direct sales.
